@@ -1,16 +1,8 @@
 # Career Choices Questionnaire
 
-The topic of career choices isn't one that ends at the start of high school and that's an important point to begin with.
-
-I had an odd dream today and it kind of touched on this topic. Why I'm having dreams to prepare and educate today's youth, I'll point you to boredom and solitude.
-
-It went something like this:
-
 1. Me - What am I good at or interested in
 2. You - What do you need from me and how can I best align my stewardship with fulfillment
 3. The world - What do I and you have that the world lacks or what have I understood about myself and those in my immediate surrounding that I served that could scale to the masses
-
-That was of course a dream and it ended with me deciding to be a counselor at a small school in the mountains in the middle of no where. Give or take some existential romance debacles and beautiful water with my eyes twinkling upon discovering kayaking, it was rather mundane. I do have however have my own developed thoughts on the topic of figuring out what you wanna do in life. Without further ado...
  
 ### Understanding myself
 
